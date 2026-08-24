@@ -32,4 +32,10 @@ Thank you.
 The Good News of Jesus Christ in 5 Simple Steps<br>
 https://fivejc.com/
 
+## Learn to share your faith
+Online Share Your Faith Tutorial<br>
+Learn the Evangelism Explosion Gospel Presentation<br>
+https://goshareyourfaith.com/
+
+
 <br>
