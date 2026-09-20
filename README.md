@@ -1,6 +1,7 @@
 # The Christian Faith Explained Simply and Quickly
 
-YouTube<br>
+YouTube Video<br>
+The Christian Faith Explained Simply and Quickly<br>
 https://www.youtube.com/watch?v=917FAlCvsk0
 
 <br>
