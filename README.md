@@ -1,4 +1,4 @@
-# The Christian Faith Explained Simply and Quickly
+# The Good News in One Minute
 
 YouTube Video<br>
 The Christian Faith Explained Simply and Quickly<br>
