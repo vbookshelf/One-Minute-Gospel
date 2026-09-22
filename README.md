@@ -1,7 +1,7 @@
 # The Good News in One Minute
 
 YouTube Video<br>
-The Bible says that Heaven is a Free Gift<br>
+The Bible says that Heaven is a Free Gift...<br>
 https://www.youtube.com/watch?v=917FAlCvsk0
 
 <br>
