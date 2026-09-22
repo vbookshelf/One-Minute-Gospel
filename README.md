@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=917FAlCvsk0
 
 <br>
 
+<img src="images/image1.png" alt="Modern Jesus" height="400">
+
+<br>
+
 > The Bible teaches that God's standard for entering heaven is perfection. In essence, we need to be as good as God is. This standard is impossible for any human to achieve through good works.
 > 
 > But here’s the good news:
